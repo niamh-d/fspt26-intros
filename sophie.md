@@ -9,3 +9,5 @@ My name is Sophie. I'm 26 and I come from Germany! 🇩🇪
 I love to take photos and I have a cute kitty named Nibbles.
 
 ![Kitty picture](/sophie/kitty.png)
+
+I am also fictional! I'm just here as an example.
