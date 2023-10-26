@@ -2,7 +2,7 @@
  get ready for some oversharing <img src="mary/fiore.png" alt="blossomFlowr" eight=50, width="50"/>
 
 ### Early Life
-I was born on May 23rd, 1994; in Rome, Italy. My parents decided to call me Maria Carolina out of my mom's aunt's name - they were looking for some regal name.
+I was born on May 23rd, 1994; in Rome, Italy. My parents decided to call me Maria Carolina out of my mom's aunt's name - they were looking for some regal name bacause of our ancestors.
 So, I was born as the youngest daughter of Raimonda and Luca Rinaldi, sister of a 3 years old buddy named Giulio Rinaldi.
 
 As soon as I was 2 years old, we moved to Naples where my mother is from. We were always the closest to my mother's family, even though it has not been easy being the youngest of all cousins - my years in Naples were filled with bullying and shame.
@@ -10,7 +10,7 @@ Even though, I think there is something magical about that city, that always mak
 During those years as a kid I learnt how important to me it is the action of taking care, of others, of animals, of situations - I was often called to help in emergency situations. This has never changed. My more lasting hobby ever since has been taking care of small animals, of my cats, of other people interests <i style="font-size:80%"> (it took me a long time to realize I don't need much more than that passion to be valid as a human)</i>.
 
 Another thing I always had a feeling for was English language <i style="font-size:80%">(took me a long time to accept this as a valid passion too...  damn it society!)</i>. I started studying it on my 3rd year of elementary school and luckly enough I had a very fun teacher who helped me falling in love with the subject. She taught me this magical thing of reading, translating and singing English songs, and from then on I never stopped doing so - even though the effort was much more then that in high school. I feel in love with Avril Lavigne, Simple Plan, Eminem even before I was adolescence.
-<img src="mary/IMGP0317.JPG" alt="teenAgeMe" eight=500, width="500"/>
+<img src="mary/IMGP0317.JPG" alt="teenage me on vacation" eight=200, width="200"/>
 
 
 
@@ -34,7 +34,7 @@ Three long years late, I went back to US. I got accepted into a research group a
 
 ### Oh blimey I'm an adult
 
-I was back to Rome, living again in my home with my cat and full of new fears that the pandemic brought. I had a hard time going back to taking a plane, solo travelling, doing things by myself. I am still not sure I can manage to be in public by my self, but turning 29yo helped.
+I was back to Rome, living again in my home with my cat and full of new fears that the pandemic brought. I had a hard time going back to taking a plane, solo travelling, doing things by myself. I am still not sure I can manage to be in public by my self, but turning 29yo helped. Or perhaps meeting love again through my young cat gave me a second chance in living.
 
 In the last 2 years I realized I became an adult without even knowing where my young years have gone, it was really all of a sudden. People started addressing me as "miss" - what the heck!? And great things came with it, because my inner talking became less judmental and I forgive myself more and more. I accepted my not so amazing human being as she is, and I am working towards being a good partner for the next person I will meet <i style="font-size:80%">(and a good ex for the exes that stayed lolol)</i>.
 
@@ -48,3 +48,5 @@ And most and foremost, I am not a psychologist, I am a creator. I am a weirdo. I
 I used to think that the wisest thing to do was to project myself in my 50s and think about what would make me happy then, and how to get there; now that I am hitting my 30s I finally started living in my present, all I care is I am happy <strong>now</strong>, because I can't rely on any moment except for this one.
 
 At least right now I can do the things I love.
+
+<img src="mary/20210617_160641.jpg" alt="my first kid and I" eight=200, width="200"/>
